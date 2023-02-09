@@ -1,4 +1,4 @@
-# Jon Massari
+
 🪕 🍕 🐂 🚣‍♂️ 💻
 
 [LinkedIn](https://www.linkedin.com/in/jonmassari/)
